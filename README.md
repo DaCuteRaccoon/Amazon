@@ -1,2 +1,3 @@
 # Amazon
-Funny amazon reviews
+Funny amazon reviews!
+### Click [here](/_/) to read the reviews
