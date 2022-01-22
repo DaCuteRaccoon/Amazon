@@ -1,4 +1,4 @@
-### [Backyard Carnival of Death](https://www.amazon.com/review/R3GM2OT8EH1P5T)f
+### [Backyard Carnival of Death](https://www.amazon.com/review/R3GM2OT8EH1P5T)
 I'm a risk analyst for a major insurance firm, so when my wife and I were planning a birthday party for our seven-year-old, Crispin, my mind naturally turned to liabilities. We'd settled on the theme of a "backyard carnival", complete with a swing set, a trampoline, merry-go-round, and a giant Slip \`n Slide. So I carefully inspected the equipment for safety. It all seemed sound.
 
 We have a home on a bluff overlooking the ocean. As it happened, on the day of the party our neighbors were trimming their [ficus trees](https://www.google.com/search?q=ficus+tree). We heard the sound of their wood chipper buzzing occasionally from the other side of our tall hedge. It was a little irritating, but not disruptive.
