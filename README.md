@@ -1,0 +1,2 @@
+# Amazon
+Funny amazon reviews
