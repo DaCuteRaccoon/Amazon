@@ -12,7 +12,7 @@ At this point, nothing mattered except expelling this ungodly presence from my b
 
 ### [St. Diarrhea's Day Massacre](https://www.amazon.com/gp/customer-reviews/R2K00WGEQIW2Y4)
 
-I purchased these “Gummy Bears” thinking “Sounds like a nice purchase, 5 Lbs. of delicious candy for a decent price.. Can’t go wrong.” Unfortunately I had to learn the hard way.. IT CAN GO VERY WRONG!! First of all, I made the mistake of not reading the reviews before my purchase, and that was a mistake I will live with for the rest of my life due to the trauma I received after eating two handfuls of these. I was excited to try these first time and I will say this, they were surprisingly tasteful for being “Sugar Free” and I regretfully decided to try less than two handfuls within 5 minutes before I had to make a run to Walmart to purchase a few things that didn’t include a stockpile of toilet paper. Within 15 minutes of consuming these high powered laxatives, my stomach was making noises that I should have seen as a message from God warning me, “You should turn back around and go home.” I excused the funny feeling in my stomach, as I was on a mission to replace a Keurig machine that broke from Walmart. Yes I said it, “WALMART.” As I parked my car, I felt my stomach growing more agitated by the minute making gurgling noises that struck me as unusual but I proceeded into the store as I really wanted a new coffee machine...
+I purchased these “Gummy Bears” thinking “Sounds like a nice purchase, 5 Lbs. of delicious candy for a decent price.. Can’t go wrong.” Unfortunately I had to learn the hard way. IT CAN GO VERY WRONG!! First of all, I made the mistake of not reading the reviews before my purchase, and that was a mistake I will live with for the rest of my life due to the trauma I received after eating two handfuls of these. I was excited to try these first time and I will say this, they were surprisingly tasteful for being “Sugar Free” and I regretfully decided to try less than two handfuls within 5 minutes before I had to make a run to Walmart to purchase a few things that didn’t include a stockpile of toilet paper. Within 15 minutes of consuming these high powered laxatives, my stomach was making noises that I should have seen as a message from God warning me, “You should turn back around and go home.” I excused the funny feeling in my stomach, as I was on a mission to replace a Keurig machine that broke from Walmart. Yes I said it, “WALMART.” As I parked my car, I felt my stomach growing more agitated by the minute making gurgling noises that struck me as unusual but I proceeded into the store as I really wanted a new coffee machine...
 
 GOD HELP ME.
 
@@ -20,6 +20,13 @@ I was literally in the middle of the store looking at small kitchen appliances b
 
 The Hadicapped Stall.
 
-Upon entering the bathroom stall while simultaneously crying and pulling my pants down I jumped on the toilet seat not realizing it was literally covered in urine and as I began opening the flood gates, releasing the evil that moments prior had begun rearranging my insides, I realized after the fact that there was no seat paper and I then I began holding on for dear life while begging God to kill me, sounding off gunshots out of my ass that most likely had people running out of the store..
+Upon entering the bathroom stall while simultaneously crying and pulling my pants down I jumped on the toilet seat not realizing it was literally covered in urine and as I began opening the flood gates, releasing the evil that moments prior had begun rearranging my insides, I realized after the fact that there was no seat paper and I then I began holding on for dear life while begging God to kill me, sounding off gunshots out of my ass that most likely had people running out of the store...
 
 USE THIS PRODUCT AT YOUR OWN RISK AND ASK YOURSELF, “WAS IF WORTH IT?” If the answer is yes, you should seek a mental health professional.
+
+### [works as advertised.](https://www.amazon.com/gp/customer-reviews/R3JYEDIGC292PL)
+the gastrointestinal hell that these cause is truly biblical in proportions.
+
+<i>-[a][1]</i>
+
+[1]: https://www.amazon.com/gp/profile/amzn1.account.AFOHOVGJAX7CATW4OZ247EB63PEA/
